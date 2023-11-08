@@ -1,5 +1,5 @@
 ## Hey There ✋
 # How's it going??
 
-  Contribute to change, contribute to better 🔥
+  Contribute for change, contribute for better 🔥
   Repositories 👇
